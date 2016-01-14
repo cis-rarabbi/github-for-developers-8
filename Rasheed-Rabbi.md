@@ -1,2 +1,3 @@
 ### Rasheed Rabbi
-CWSC
+#### CWSC
+### Color: Favorite color is White.
