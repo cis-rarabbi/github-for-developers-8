@@ -1,3 +1,3 @@
 ### Rasheed Rabbi
 #### CWSC
-### Color: Favorite color is While.
+### Color: Favorite color is White.
